@@ -92,7 +92,7 @@
 
 * [University Suites apartment building](https://goo.gl/maps/CTffUskuQjXd5ipA9)
 
-  * Formerly the Phi Kappa Theta fraternity house. We built this place after the original house burned down. Unfortunately ambition was a bit high and subsequent brothers weren't able to keep enough people paying rent to keep up with the mortgage.
+  * Formerly the Phi Kappa Theta fraternity house. We built this place after the original house burned down. Unfortunately ambition was a bit high and subsequent brothers weren't able to keep enough people paying rent to keep up with the mortgage. Lived here and next door for a couple years.
 
 ## Houghton Area Outdoor Activities
 
@@ -100,7 +100,7 @@
 
   * [Mine tours](http://www.quincymine.com/) four times a day.
 
-* [chutes and ladders](https://goo.gl/maps/i311HEqZ1b4hiH9w5)
+* [Chutes and Ladders](https://goo.gl/maps/i311HEqZ1b4hiH9w5)
 
   * Playground on the beach, right by [portage paddle sports](http://portagepaddlesports.com/). You can rent paddle boards, kayaks, jet skis, and bikes here to cruise the portage.
 
